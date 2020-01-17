@@ -1,2 +1,2 @@
 # BIS15W2020_lle
-# Leanne Le
+# Leann Le(mailto:ltvle@ucdavis.edu)
